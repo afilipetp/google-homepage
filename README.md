@@ -1,0 +1,1 @@
+Primeiro projecto feito a serio por mim. Já aprendi da pior maneira que o . abre a diretoria em questão. Editei um README que não tinha nada a ver lol. Obrigado TOP.
